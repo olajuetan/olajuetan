@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @olajuetan
+- 👀 I’m interested in digital marketing
+- 🌱 I’m currently learning link promoion
+- 💞️ I’m looking to collaborate on affilate promotion
+- 📫 How to reach me https://www.fiverr.com/oyewole__vic
